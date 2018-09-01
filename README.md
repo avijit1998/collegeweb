@@ -1,1 +1,1 @@
-# collegeweb.github.io
+https://avijit1998.github.io/collegeweb/
